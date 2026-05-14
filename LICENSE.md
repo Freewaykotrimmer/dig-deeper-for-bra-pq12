@@ -1,4 +1,4 @@
-#  
+#  dig deeper for brainrots best Script offers the most advanced dig deeper for brainrots Script, with one-hit kill and infinite resources. Perfect for
 
 
 
